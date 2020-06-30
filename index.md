@@ -11,6 +11,6 @@ Während seinen Recherchen kommt er einem Pharmaskandal auf die Spur und kann se
 * warmherzig
 
 ## Filmzitat
-> Du weißt, das Spiel est erst zu Ende, wenn der Leitwolf gejault hat.
+> Du weißt, das Spiel ist erst zu Ende, wenn der Leitwolf gejault hat.
 
-
+<img src="https://static.kino.de/wp-content/gallery/auf-der-flucht-1993/auf-der-flucht-harrison-ford-10-rcm1024x0u.jpg"/>
